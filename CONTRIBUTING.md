@@ -2,7 +2,7 @@
 
 Really appreciate your taking time checking this. ❤️
 
-If you are looking for means of contacting me directly, please use the means described under SECURITY for options.
+If you are looking for means of contacting me directly, please use the methods described under SECURITY for options.
 
 ## Bugs
 
